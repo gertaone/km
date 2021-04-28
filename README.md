@@ -1,19 +1,21 @@
 # km
 
-1. FGD 1:  Ciater, 1 April 2021
+**1. FGD 1:  Ciater, 1 April 2021**
 
 -Proposal Plan: https://bit.ly/3eAAhut
 
 -Resume: Disepakati 4 tahapan digipom
 
-2. FGD 2: Online Zoom, 5 April 2021
+**2. FGD 2: Online Zoom, 5 April 2021**
 
 -Rangkuman Proposal dan Resemu dengan Team KM: 
 
 -Resume sesuai Plan 4 tahapan digipom
 
+-Pembentukan team konten (team KM), strategist, dan narasi
 
-3. FGD 3:
+
+**3. FGD 3:**
 
 -Waktu dan Tempat: 
 
