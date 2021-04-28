@@ -15,7 +15,7 @@
 -Pembentukan team konten (team KM), strategist, dan narasi
 
 
-**3. FGD 3:** 
+**3. FGD 3: 28 April 2021** 
 
 -Feasibility Study goal KM Jabar 1/2
 
