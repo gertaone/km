@@ -50,5 +50,14 @@ Notulensi:
 5. Hubungan dgn RK, 
 6. KM meneruskan RK
 7. Jgn mengkritik RK
+
+________________________________________
+
+Lukman: Koordinator Team
+Cevi: Online
+Zia: Offline
+
+
+
  
 
