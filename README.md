@@ -31,7 +31,7 @@
 
 -Tahapan KM:
 1. Organisir Sosmed KM (team KM)
-2. Agitasi Organik (Subang, Majalengka, Sumedang)
+2. Agitasi Organik (Fokus Subang. Majalengka dan Sumedang Menyusul)
 3. Sentimen (masuk kepada isu kedaerahan membawa bendera tertentu)
 4. Parameter pencapaian (dalam angka)
 
@@ -40,5 +40,5 @@
 1. Peningkatan followers KM (Fokus ke sosmed mana: Youtube)
 2. Pembuatan akun2 KM (quotes of KM, pesantrenmillinials, dll, semua akun tersebut spreading sosok, pemikiran, dan narasi KM untuk secara umum (Nasional), dan khusus (Jabar))
 3. Seminar2 KM kerjasama dengan badan2 tertentu (relasi dan relawan KM merapatkan barisan): https://bit.ly/3xGseVI
-5. 
+5. Database relasi dan relawan KM untuk area pilot project (Fokus Subang. Majalengka dan Sumedang Menyusul)
 
