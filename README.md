@@ -3,7 +3,9 @@
 1. FGD 1: 
 
 -Waktu dan Tempat: 1 April 2021
--Proposal Plan: https://www.canva.com/design/DAEaUCysdR4/vCU4yVU7xQQFtGicoratJA/view?utm_content=DAEaUCysdR4&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+
+-Proposal Plan: https://bit.ly/3eAAhut
+
 -Resume: Disepakati 4 tahapan digipom
 
 2. FGD 2:
