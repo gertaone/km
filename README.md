@@ -46,7 +46,7 @@ Notulensi:
 
 1. FIX KM bernaung dengan PKB lewat dewan Syuro
 2. Identifikasi memperkuat kekuatan basis (database) 10
-3. Isu kedaerahan 10 Kabupaten Kota (List: Jabar Utara): Bekasi, Karawang, Purwakarta, Subang, Sumedang, Indramayu, Majalengka, Kuningan, Cirebon, Kab. Cirebon
+3. Isu kedaerahan 10 Kabupaten Kota (List: Jabar Utara): Bekasi!, Karawang!, Purwakarta, (Subang!), Sumedang, Indramayu, (Majalengka!), Kuningan, Cirebon, Kab. Cirebon!
 5. Hubungan dgn RK, 
 6. KM meneruskan RK
 7. Jgn mengkritik RK
