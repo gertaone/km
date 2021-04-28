@@ -30,10 +30,10 @@
 * Narasi di akhir, bahwa kekuatan KM dekat dengan RK, sehingga narasi yang terbentuk adalah, RK titip Jabar kpd KM (RK mempercayakan KM untuk mengoptimalisasi dan lbh menginovasikan program2 RK sebelumnya, KM adalah kakak dari RK)
 
 -Tahapan KM:
-1. sdsd
-2. 222
-3. 222
-4. 222
+1. Organisir Sosmed KM (team KM)
+2. Agitasi Organik (Subang, Majalengka, Sumedang)
+3. Sentimen (masuk kepada isu kedaerahan membawa bendera tertentu)
+4. Parameter pencapaian (dalam angka)
 
 
 
