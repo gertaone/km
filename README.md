@@ -35,7 +35,7 @@
 3. Sentimen (masuk kepada isu kedaerahan membawa bendera tertentu)
 4. Parameter pencapaian (dalam angka)
 
--Pilot Project KM: angka 10K Follower dan Konten
+-Pilot Project KM: angka Min 10K Follower dan Konten
 
 1. Peningkatan followers KM (Fokus ke sosmed mana: Youtube)
 2. Pembuatan akun2 KM (quotes of KM, pesantrenmillinials, dll, semua akun tersebut spreading sosok, pemikiran, dan narasi KM untuk secara umum (Nasional), dan khusus (Jabar))
