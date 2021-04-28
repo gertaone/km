@@ -39,6 +39,6 @@
 
 1. Peningkatan followers KM (Fokus ke sosmed mana: Youtube)
 2. Pembuatan akun2 KM (quotes of KM, pesantrenmillinials, dll, semua akun tersebut spreading sosok, pemikiran, dan narasi KM untuk secara umum (Nasional), dan khusus (Jabar))
-3. Seminar2 KM kerjasama dengan badan2 tertentu (relasi dan relawan KM merapatkan barisan): 
+3. Seminar2 KM kerjasama dengan badan2 tertentu (relasi dan relawan KM merapatkan barisan): https://bit.ly/3xGseVI
 5. 
 
