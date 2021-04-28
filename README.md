@@ -20,3 +20,20 @@
 -Feasibility Study goal KM Jabar 1/2
 
 -Resume FS: 
+
+* Pola kepemimpinan nasional ataupun Jabar selalu ANTITESIS dari kepemimpinan sebelumnya
+* ANTITESIS: Proses Shifting lalu pola upgrade 
+* Pola kepemimpinan RK-> Upgrade (optimalisasi dan inovasi),karena RK telah Shifting dari antitesis Aher, harus mengimbangi minimal team RK dgn ciri khas KM
+* Mapping calon kandidat lain (DM, RK, Desy Ratnasari, Ahmad Syaikhu, UU, Taufik dprd Jabar, Ono Surono, ?)
+* KM bernanung dengan bendera apa di Jabar? (PKB, KITA, KONI, atau apa?)
+* Pola KM tokoh nasionalis dipusat, harus sudah mulai ekspansi dengan pola isu kedaerahan melalui bendera apa
+* Narasi di akhir, bahwa kekuatan KM dekat dengan RK, sehingga narasi yang terbentuk adalah, RK titip Jabar kpd KM (RK mempercayakan KM untuk mengoptimalisasi dan lbh menginovasikan program2 RK sebelumnya, KM adalah kakak dari RK)
+
+-Tahapan KM:
+1. sdsd
+2. 222
+3. 222
+4. 222
+
+
+
