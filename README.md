@@ -8,7 +8,7 @@
 
 **2. FGD 2: Online Zoom, 5 April 2021**
 
--Rangkuman Proposal dan Resemu dengan Team KM: 
+-Rangkuman Proposal dan Reseme dengan Team KM: https://bit.ly/2PxLfbC
 
 -Resume sesuai Plan 4 tahapan digipom
 
